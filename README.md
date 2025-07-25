@@ -4,3 +4,4 @@ Heehhh i loevv toxicHero
 || So...well, U can call me Xiao, Griefer, Shed...wathever u want, heh, 
 
  I usually spend my time playing Blocktales, Forsaken. So, if I don't log on to Pony T much. Hey, I loevvv match with someone, U are free 2 C*h, Int, I just want to warn you that I don't chat much.
+ ✦ . Forsaken ◠◠ Genshin I. ◠◠ Blocktales . ✧ `◡U︶
