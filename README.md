@@ -19,4 +19,6 @@ Iusually spend my time playing Blocktales, Forsaken, Genshin impact . So, if I d
 
 
 ◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠
-|| Hey! I loevvv AdminVirus ◠ |ToxicHero| ◠ PizzaDebt ◠ Ichance !
+|| Hey! I loevvv AdminVirus ◠ |ToxicHero| ◠ PizzaDebt ◠ Ichance ! These are my favorite shipss !!! I loevv them !!!!
+
+<img width="1280" height="140" alt="IMG-7660" src="https://github.com/user-attachments/assets/d48e211e-a357-459f-ab86-77c9ac62c409" />
