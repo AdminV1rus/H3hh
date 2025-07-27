@@ -18,8 +18,7 @@ Iusually spend my time playing Blocktales, Forsaken, Genshin impact . So, if I d
 <img width="1280" height="140" alt="IMG-7660" src="https://github.com/user-attachments/assets/d48e211e-a357-459f-ab86-77c9ac62c409" />
 
 
-◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠
 || Hey! I loevvv AdminVirus ◠ |ToxicHero| ◠ PizzaDebt ◠ Ichance ! These are my favorite shipss !!! I loevv them !!!!
-
+◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠
 <img width="1280" height="89" alt="471164213-bf897ad1-46b9-47be-a777-4a0494ebea24" src="https://github.com/user-attachments/assets/f167934b-21b8-44d3-987d-23a35fd4cf59" />
 
