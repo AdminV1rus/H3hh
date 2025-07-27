@@ -4,7 +4,9 @@
 
 
 ◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠
- I usually spend my time playing Blocktales, Forsaken, Genshin impact . So, if I don't log on to Pony T much. Hey, I loevvv match with someone, U are free 2 C*h, Int, I just want to warn you that I don't chat much.
+ ![Ovvv1mD](https://github.com/user-attachments/assets/74502d22-3581-41f8-ab3b-30bf14530d07)
+
+Iusually spend my time playing Blocktales, Forsaken, Genshin impact . So, if I don't log on to Pony T much. Hey, I loevvv match with someone, U are free 2 C*h, Int, I just want to warn you that I don't chat much.
  ✦ . Forsaken ◠ Genshin I. ◠ Blocktales ◠ Evade ✦ .  .
 
  
