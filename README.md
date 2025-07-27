@@ -15,4 +15,4 @@ Iusually spend my time playing Blocktales, Forsaken, Genshin impact . So, if I d
  
  ◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠
 ![GRIEFER!  blocktales  (1)](https://github.com/user-attachments/assets/bc6a8e77-c0de-45ea-bb56-fb3e1e70df7c)
-<img width="400" height="157" alt="tumblr_88ef0dab866c6924124525d9efd65637_5aad6517_400" src="https://github.com/user-attachments/assets/0c36a9c9-0f5c-404c-8182-49090a755741" />
+<img width="1280" height="140" alt="IMG-7660" src="https://github.com/user-attachments/assets/d48e211e-a357-459f-ab86-77c9ac62c409" />
