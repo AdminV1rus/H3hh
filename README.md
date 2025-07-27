@@ -3,7 +3,8 @@
 || So...well, U can call me Xiao, Griefer, Shed...wathever u want, heh, 
 
 
-◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠
+◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠
  I usually spend my time playing Blocktales, Forsaken, Genshin impact . So, if I don't log on to Pony T much. Hey, I loevvv match with someone, U are free 2 C*h, Int, I just want to warn you that I don't chat much.
  ✦ . Forsaken ◠ Genshin I. ◠ Blocktales ◠ Evade ✦ .  .
+ ◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠
 ![GRIEFER!  blocktales  (1)](https://github.com/user-attachments/assets/bc6a8e77-c0de-45ea-bb56-fb3e1e70df7c)
