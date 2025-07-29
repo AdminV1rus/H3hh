@@ -1,7 +1,8 @@
 # H3h3hhh
 <img width="1280" height="89" alt="Untitled1469-20241230152921" src="https://github.com/user-attachments/assets/bf897ad1-46b9-47be-a777-4a0494ebea24" />
 
-<img width="1604" height="1460" alt="13 sin título_20250725160602" src="https://github.com/user-attachments/assets/591f7bfe-21ce-459d-92c2-bbced9d95d2a" /> 
+ <img width="1604" height="1462" alt="15 sin título_20250727135109" src="https://github.com/user-attachments/assets/d0c8fe78-444f-465f-8988-2c6488fd578a" />
+
 . ✦ . H3eyyy th1s is uhhh...som3thing about me3 :  
 || So...well, U can call me Xiao, Griefer, Shed...wathever u want, heh, 
 
