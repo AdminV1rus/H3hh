@@ -26,3 +26,4 @@ I LOVE THEM AHHHHHH, MY DADS 🔥🔥👅👅 AHAH I LOEVVV
 ◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠◠
 <img width="1280" height="89" alt="471164213-bf897ad1-46b9-47be-a777-4a0494ebea24" src="https://github.com/user-attachments/assets/f167934b-21b8-44d3-987d-23a35fd4cf59" />
 
+<img width="1604" height="1462" alt="16 sin título_20250727135349" src="https://github.com/user-attachments/assets/db45ec83-9a15-453e-8546-deabbf0e711b" />
